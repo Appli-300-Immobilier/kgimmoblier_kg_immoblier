@@ -6,9 +6,9 @@ KG IMMOBLIER Website
 KG IMMOBLIER
 - **Directory:** kgimmoblier_kg_immoblier
 - **Address/Contact:** 
-  - Agence immobili�re agr��e ????
-  - Luxe � Moyen � Haut standing
-  - Ensemble, cr�ons votre chez-vous id�al !
+  - Agence immobiliére agréée ????
+  - Luxe é Moyen é Haut standing
+  - Ensemble, créons votre chez-vous idéal !
   - ??+225 07 00 67 67 56
 - **Description:** 
 - **Social Media:** https://www.tiktok.com/@kgimmoblier
